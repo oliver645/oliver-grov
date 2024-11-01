@@ -20,7 +20,7 @@ Full Stack Developer with 1.5 years of experience, focusing on frontend developm
 
 - 💬 Ask me about **react, next, c++, Tailwind, Material Ui**
 
-- 📫 How to reach me **hanzlasib24@gmail.com**
+- 📫 How to reach me **of211606@gmail.com**
 
 - 📄 Know about my experiences [Linkedin](https://www.linkedin.com/in/hanzlasibghat/)
 
