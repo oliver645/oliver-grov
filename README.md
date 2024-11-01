@@ -22,7 +22,7 @@ Full Stack Developer with 1.5 years of experience, focusing on frontend developm
 
 - 📫 How to reach me **of211606@gmail.com**
 
-- 📄 Know about my experiences [Linkedin](https://www.linkedin.com/in/hanzlasibghat/)
+- 📄 Know about my experiences [Linkedin](https://www.linkedin.com/in/oliver grobunov/)
 
 
 
